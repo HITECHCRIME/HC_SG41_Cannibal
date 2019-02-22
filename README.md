@@ -9,26 +9,21 @@ ye ye ye ye ye ye
 bruuu
 
 [HOOK]
-dying fucking make it to the
+dying status make it to the hideout (ffff)
 like a general
-
-x x x x x x
+x x x x x x (?)
 make it now
-
-x x x x x x
+x x x x x x (?)
 take it raw
-
 matching to make it whole
-i'm an artisan are you dead yet?
+i'm an artisan - ARE YOU DEAD YET?
 
 [HOOK]
-dying fucking make it to the
+dying status make it to the (ffff)
 like a general
-
-x x x x x x
+x x x x x x (?)
 make it now
-
-x x x x x x
+x x x x x x (?)
 take it raw
 
 [CHORUS]
@@ -37,17 +32,11 @@ sewing pieces like an artisan
 but i'm a cannibal
 
 x
-x
-x
-x
-x
-x
-x
-
+[VERSE] 
 evade the forces
 let it out and cut it out
 
 evade the forces 
-let them out the boyo
+let them out the foyer (????)
 
-bojo
+
