@@ -38,6 +38,6 @@ evade the forces
 let it out and cut it out
 
 evade the forces 
-let them out the foyer (????)
+let them out the foyer (????) fire
 
 
