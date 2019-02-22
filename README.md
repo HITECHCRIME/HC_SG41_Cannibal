@@ -15,7 +15,8 @@ x x x x x x (?)
 make it now
 x x x x x x (?)
 take it raw
-matching to make it whole
+
+match to make it whole
 i'm an artisan - ARE YOU DEAD YET?
 
 [HOOK]
@@ -28,7 +29,7 @@ take it raw
 
 [CHORUS]
 match to make it whole
-sewing pieces like an artisan 
+sewing pieces like an artisan (sewing pieces as an artisan) 
 but i'm a cannibal
 
 x
