@@ -32,7 +32,7 @@ match to make it whole
 sewing pieces like an artisan (sewing pieces as an artisan) 
 but i'm a cannibal
 
-scavenger 
+scavenger / danger (?) check which word ending is in the recording
 
 [VERSE] 
 evade the forces
