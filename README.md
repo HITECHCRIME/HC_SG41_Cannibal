@@ -10,7 +10,7 @@ bruuu
 
 [HOOK]
 dying status make it to the hideout (ffff) -1 word
-like a general
+like a general (?)
 x x x x x x (?)
 make it now
 x x x x x x (?)
