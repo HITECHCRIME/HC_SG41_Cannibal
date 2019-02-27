@@ -9,7 +9,7 @@ ye ye ye ye ye ye
 bruuu
 
 [HOOK]
-dying status make it to the hideout (ffff) -1 word
+dying status make it to the hideout (ffff) -1 word 
 like a general (?)
 x x x x x x (?)
 make it now
@@ -32,13 +32,24 @@ match to make it whole
 sewing pieces like an artisan (sewing pieces as an artisan) 
 but i'm a cannibal
 
-scavenger / danger (?) check which word ending is in the recording
+rouuuu
 
 [VERSE] 
+scavenger / danger (?) check which word ending is in the recording
+
+x
+x
+
 evade the forces
 let it out and cut it out
 
 evade forces 
 let them out the foyer (????) fire
+
+x
+x
+
+let them bunk at the cleaver
+
 
 
