@@ -55,7 +55,7 @@ let them xxx (?) going for no reason
 
 year of the reaper
 
-season for the 
+seasoned for the blood
 
 
 
