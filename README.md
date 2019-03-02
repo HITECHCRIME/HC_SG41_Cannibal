@@ -59,13 +59,12 @@ let them - in a bunk at the cleaver
 let them xxx (?) going for no reason (going out for a reason)
 year of the reaper
 
-quick: reason that's clear to me
+quick: 
+reason that's clear to me
 can't hold life down
 let me make you bleed
+seasoned for the blood ya
 
-
-
-seasoned for the blood
 
 
 
