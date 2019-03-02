@@ -5,10 +5,23 @@ Hitech Crime Single 'Cannibal'
 
 Video clip on Instagram.
 
+reason that's clear to me
+can't hold life down
+let me make you bleed
+seasoned for the blood ya
+x
+x
+x
+
 may it at least be a test, if you pass
-i'll put you down to rest
-chunks of flesh like poems 
-dripping with love, usually make a mess
+i'll put you down and rest absolvent
+chunks of flesh, chunks of flesh like poems 
+
+dripping with your love, usually i make a mess
+when i'm gutting your throat i just think of your face
+
+
+
 
 ye ye ye ye ye ye
 bruuu
@@ -60,10 +73,7 @@ let them xxx (?) going for no reason (going out for a reason)
 year of the reaper (age of the reaper)
 
 quick: 
-reason that's clear to me
-can't hold life down
-let me make you bleed
-seasoned for the blood ya
+
 
 
 
