@@ -5,6 +5,11 @@ Hitech Crime Single 'Cannibal'
 
 Video clip on Instagram.
 
+may it at least be a test, if you pass
+i'll put you down to rest
+chunks of flesh like poems 
+dripping with love, usually make a mess
+
 ye ye ye ye ye ye
 bruuu
 
@@ -51,9 +56,14 @@ breeeath ---
 that all, that's enough (that's not all but that's enough)
 
 let them - in a bunk at the cleaver 
-let them xxx (?) going for no reason 
-
+let them xxx (?) going for no reason (going out for a reason)
 year of the reaper
+
+quick: reason that's clear to me
+can't hold life down
+let me make you bleed
+
+
 
 seasoned for the blood
 
