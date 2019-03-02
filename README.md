@@ -57,7 +57,7 @@ that all, that's enough (that's not all but that's enough)
 
 let them - in a bunk at the cleaver 
 let them xxx (?) going for no reason (going out for a reason)
-year of the reaper
+year of the reaper (age of the reaper)
 
 quick: 
 reason that's clear to me
