@@ -17,14 +17,19 @@ reason that's clear to me
 can't hold life down
 let me make you bleed
 seasoned for the blood ya
+may it at least be a test, 
+if you pass, i'll pull you down 
+last and rest absolvent, strings of guilt 
+chunks of flesh like poems
 
-may it at least be a test, if you pass (this will be a test)
-i'll put you down and rest absolvent
-strings of guilt 
-chunks of flesh, chunks of mind like poems
+match to make it whole
+again - match to make it whole 
+sewing pieces like an artisan
+but i'm a cannibal
 
-match to make it whole again
-sewing pieces as an artisan 
+match to make it whole
+again - match to make it whole 
+sewing pieces like an artisan
 but i'm a cannibal
 
 ye ye ye ye ye ye
