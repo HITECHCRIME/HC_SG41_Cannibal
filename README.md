@@ -55,6 +55,11 @@ make it now
 enraged x x x x x (?)
 take it raw
 
+match to make it whole
+again - match to make it whole 
+sewing pieces like an artisan
+but no - i'm a cannibal
+
 [CHORUS]
 match to make it whole again
 sewing pieces like an artisan (sewing pieces as an artisan) 
