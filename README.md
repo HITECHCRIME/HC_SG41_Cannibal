@@ -5,6 +5,12 @@ Hitech Crime Single 'Cannibal'
 
 Video clip on Instagram.
 
+something haunts your mind
+deep inside, personal inquiry
+while i'm at it i make a mess
+dripping with your love
+gutting your throat i just think of your face
+
 reason that's clear to me
 can't hold life down
 let me make you bleed
@@ -13,14 +19,11 @@ seasoned for the blood ya
 may it at least be a test, if you pass (this will be a test)
 i'll put you down and rest absolvent
 strings of guilt 
-chunks of flesh, chunks of mind like poems 
+chunks of flesh, chunks of mind like poems
 
-something haunts your mind
-deep inside, personal inquiry
-while i'm at it i make a mess
-dripping with your love
-gutting your throat i just think of your face
-
+match to make it whole again
+sewing pieces as an artisan 
+but i'm a cannibal
 
 ye ye ye ye ye ye
 bruuu
@@ -34,7 +37,7 @@ enraged x x x x x x (?)
 take it raw
 
 match to make it whole again
-i'm an artisan - ARE YOU DEAD YET?
+ARE YOU DEAD YET?
 
 [HOOK]
 dying status make it to the (ffff)
@@ -45,7 +48,7 @@ enraged x x x x x (?)
 take it raw
 
 [CHORUS]
-match to make it whole
+match to make it whole again
 sewing pieces like an artisan (sewing pieces as an artisan) 
 but i'm a cannibal
 
@@ -59,14 +62,13 @@ x
 
 evade the forces
 let it out and cut it out
-
 evade forces ------- change
 let them out the foyer (????) fire
-
 breeeath ---
-
+x
+x
+x
 that all, that's enough (that's not all but that's enough)
-
 let them - in a bunk at the cleaver 
 let them xxx (?) going for no reason (going out for a reason)
 year of the reaper (age of the reaper)
