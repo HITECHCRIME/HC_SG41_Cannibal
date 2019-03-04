@@ -7,7 +7,7 @@ Video clip on Instagram.
 
 something haunts your mind
 while i'm at it i make a mess, tell me dear
-deep inside, personal inquiry
+deep inside, made amends? personal inquiry
 
 dripping with your love
 gutting in your throat, just think of my face
@@ -18,19 +18,20 @@ can't hold life down
 let me make you bleed
 seasoned for the blood ya
 may it at least be a test, 
-if you pass, i'll pull you down 
+if you pass, i'll pull you 
 last and rest absolvent, strings of guilt 
 chunks of flesh like poems
 
 match to make it whole
 again - match to make it whole 
 sewing pieces like an artisan
-but i'm a cannibal
+but no - i'm a cannibal
+sewing pieces like an artisan
+but no - i'm a cannibal
 
 match to make it whole
 again - match to make it whole 
-sewing pieces like an artisan
-but i'm a cannibal
+
 
 ye ye ye ye ye ye
 bruuu
