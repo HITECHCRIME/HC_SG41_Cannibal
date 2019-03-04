@@ -62,8 +62,8 @@ x
 
 evade the forces
 let it out and cut it out
-evade forces ------- change
-let them out the foyer (????) fire
+evade the voices ------- change
+let them out with fire
 breeeath ---
 x
 x
