@@ -9,21 +9,17 @@ reason that's clear to me
 can't hold life down
 let me make you bleed
 seasoned for the blood ya
-something haunts your mind
-deep inside, personal inquiry
-
-x
-x
 
 may it at least be a test, if you pass (this will be a test)
 i'll put you down and rest absolvent
 strings of guilt 
 chunks of flesh, chunks of mind like poems 
+
+something haunts your mind
+deep inside, personal inquiry
 while i'm at it i make a mess
 dripping with your love
 gutting your throat i just think of your face
-
-
 
 
 ye ye ye ye ye ye
