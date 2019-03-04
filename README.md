@@ -6,10 +6,12 @@ Hitech Crime Single 'Cannibal'
 Video clip on Instagram.
 
 something haunts your mind
+while i'm at it i make a mess, tell me dear
 deep inside, personal inquiry
-while i'm at it i make a mess
+
 dripping with your love
-gutting your throat i just think of your face
+gutting in your throat, just think of my face
+by now you can't speak, show some love
 
 reason that's clear to me
 can't hold life down
