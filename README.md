@@ -6,8 +6,8 @@ Hitech Crime Single 'Cannibal'
 Video clip on Instagram.
 
 something haunts your mind
-while i'm at it i make a mess, tell me dear
-deep inside, made amends? personal inquiry
+while i'm at it i make it clear, tell me dear
+deep inside, made amends? personal inquiry (?) - fear
 
 dripping with your love
 gutting in your throat, just think of my face
