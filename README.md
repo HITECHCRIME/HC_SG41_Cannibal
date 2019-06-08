@@ -8,6 +8,27 @@ Video clip on Instagram.
 ## Lyrics
 
 ```
+something haunts your mind - deep inside 
+personal inquiry
+while i'm at it i 
+make amends, tell me dear
+
+dripping with your love
+gutting in your throat
+just think of my face by now
+you can't speak 
+show some love
+
+reason that's clear to me
+can't hold life down
+let me make you bleed
+seasoned for the blood ya
+may it at least be a test, 
+if you pass, i'll put you down 
+and rest absolvent
+chunks of flesh like poems
+
+NEW:
 
 something haunts your mind
 while i'm at it i make it clear, tell me dear
