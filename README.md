@@ -5,6 +5,10 @@ Hitech Crime Single 'Cannibal'
 
 Video clip on Instagram.
 
+## Lyrics
+
+```
+
 something haunts your mind
 while i'm at it i make it clear, tell me dear
 deep inside, made amends? personal inquiry (?) - fear
@@ -89,6 +93,8 @@ let them xxx (?) going for no reason (going out for a reason)
 year of the reaper (age of the reaper)
 
 quick: 
+
+```
 
 
 
