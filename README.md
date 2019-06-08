@@ -9,34 +9,50 @@ Video clip on Instagram.
 
 ```
 something haunts your mind - deep inside 
-personal inquiry
+personal inquiry - table's clear
 while i'm at it i 
 make amends, tell me dear
 
 dripping with your love
 gutting in your throat
-just think of my face by now
-you can't speak 
+just think of my face by now 
+can't speak 
 show some love
 
 reason that's clear to me
 can't hold life down
 let me make you bleed
-seasoned for the blood ya
+seasoned for the bloooood ya
+
 may it at least be a test, 
 if you pass, i'll put you down 
-and rest absolvent
+and rest absolveeeeent
+
 chunks of flesh like poems
 
 NEW:
 
 something haunts your mind
-while i'm at it i make it clear, tell me dear
+while i'm at it i make it clear, 
+tell me dear
 deep inside, made amends? personal inquiry (?) - fear
 
 dripping with your love
 gutting in your throat, just think of my face
 by now you can't speak, show some love
+
+-
+
+something haunts your mind - deep inside 
+personal inquiry - table's clear
+while i'm at it i 
+make amends, tell me dear
+
+dripping with your love
+gutting in your throat
+just think of my face by now 
+can't speak 
+show some love
 
 reason that's clear to me
 can't hold life down
