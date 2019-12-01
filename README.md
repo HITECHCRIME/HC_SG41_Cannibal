@@ -117,7 +117,7 @@ x
 x
 
 evade the forces
-let it out and cut it out
+let it out (and/or) cut it out
 evade the voices ------- change
 let them out with fire
 breeeath ---
